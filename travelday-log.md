@@ -191,3 +191,19 @@ One more walk before we head to Sweetwater :-)
 -----
 
 
+**2022-11-09 Wed 12:38 PM  karen wrote:**
+
+
+Rock Spring, Wyoming, got in to Sweetwater Event Center late afternoon.  Expansive fairgrounds with over 1200 RV sites with FHUs @ $30/night, can boondock for $10/night.  Easy access from I-80, entered through the "lifestock" entrance and checked in with Kay, one of the caretakers that live on the property.  She charged us $20 for electric hook up only per our request.  Only about 100 sites to choose from that were winterized.  Sites were basically a U-shaped fence on gravel, no rules for how we parked. Free restroom/showers-bldg with individual units consisting of sink, toilet and shower.  Heated and clean. Nice fenced in dog park.  We made broccoli cheese soup in the instapot and Steve grilled deli turkey sandwiches on Gary.  High winds (altitude 6300).
+
+-----
+
+
+**2022-11-09 Wed 12:38 PM  karen wrote:**
+
+
+Salt Lake City, Utah:  KOA campground on North Temple right in near downtown (1.3 miles).  No issues traveling here except for intermittent light rains, though there were winter storm warnings in mountainous areas west of SLC.  The KOA campground is massive, with many permanent sites.  Well laid out and nice paved sites although ours was a little uneven. Pool closed but outdoor hot tub open year round (I quickly lost interest due to the pelting rain).  KOA is adjacent to the Jordan River that runs through SLC with a 50 mile long paved trail in the riverside green space, so took Taz out for a wet walk.  Several huge off-leash areas were perfect for him to socialize.  We made veggie rice bowls in the instapot.  Heavy rains beginning in the evening and continuing through the night so happy to be cozy and warm.
+
+-----
+
+
