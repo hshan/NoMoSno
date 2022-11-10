@@ -207,3 +207,19 @@ Salt Lake City, Utah:  KOA campground on North Temple right in near downtown (1.
 -----
 
 
+**2022-11-10 Thu 10:36 AM  steve wrote:**
+
+
+Salt Lake City KOA
+40.774276667257716, -111.93175711814811
+
+Stayed here the last two nights, waiting out some wind and taking care of some business. Now, heading south today to try and escape some of the massive cold front dropping through the nation. Karen read this morning of a massive snow storm that is to hit LOW today. Glad we aren't there.
+
+Dumped and added some fresh h20 this morning. Slight dusting of snow on ground. Got down to 27. Heated rig on "free" electricity , using "fireplace", and small electric heater in garage. Had to turn it down during the night! 
+
+Yesterday, walking through the complex, I was stopped by a truck with 3 guys in it asking what my "business" was in the place? Said it was private property. Won't bore with the details, but turned out he was the owner of the place and there had been complaints that someone was walking around taking pictures of peoples places. (I was using Fi application to track Taz's collar to find Karen and Taz).
+
+
+-----
+
+
