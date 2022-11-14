@@ -223,3 +223,21 @@ Yesterday, walking through the complex, I was stopped by a truck with 3 guys in 
 -----
 
 
+**2022-11-14 Mon 10:19 AM  steve wrote:**
+
+
+Desert Canyon RV Park, Desert Resort Court, St. George, UT
+37.01214268715485, -113.50751817401971
+
+Three nights here. Full hookups. The park owns hundreds of acres of land that they've turned into wonderful mountain bike single track trails. The park restricts trail use to only hikers and mountain bikes. There is also access to blm land for atv use. There are a lot of "toy haulers" here for that reason. 
+
+Park had pickle ball courts, swimming pool, hot tub, laundry. We used the hot tub and pool one night.
+
+park is quiet. Seems everyone keeps to themselves. First 2 days we had a neighbor, Gord, from Canada, whom was personable and friendly. Chatted with Robin and ? when we were in the hot tub. Everyone seems friendly.
+
+Near airport and hear training planes buzzing right overhead every morning at 7:00am sharp.
+
+
+-----
+
+
