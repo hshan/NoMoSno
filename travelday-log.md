@@ -241,3 +241,15 @@ Near airport and hear training planes buzzing right overhead every morning at 7:
 -----
 
 
+**2022-11-15 Tue 10:15 AM  steve wrote:**
+
+
+Peggy Sue's 50's Diner, Yermo Road, Yermo, CA., 34.90220690735898, -116.88232351933769
+
+Stayed here for free last night. Three older campers and five or six truckers shared a giant flat gravel parking lot which could hold hundreds.
+
+Ate early dinner in the diner. Ordered two large pizzas and ate one. Good pizza. The diner was full of memorabilia of 50's, 60,s Hollywood stars. Staff was period dressed. Made for a fun evening.
+
+-----
+
+
