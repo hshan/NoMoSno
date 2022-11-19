@@ -253,3 +253,29 @@ Ate early dinner in the diner. Ordered two large pizzas and ate one. Good pizza.
 -----
 
 
+**2022-11-19 Sat  9:53 AM  steve wrote:**
+
+
+Kern River Campground, Lake Ming Road, Bakersfield, CA. 35.43519852479366, -118.87733451825724
+
+Stayed here Tues and Wed (16,17th). Pull through, unlevel site, dry camping. Trail around lake and 30 miles following Kern river. Didn't bike but would next time. Shaded by giant Ponderosa, little solar.
+
+We ran into big trouble. Ran the fridge on electricity because of low propane, even though we were low on battery... ~42%. Woke up mid night to beeping sounds, should have run the gen even though "quiet hours". Woke up to worst fear.. batteries dead! Can't start gennie. Went for long walk hoping some cresting sun would charge batteries enough to start generator. Three hours later... success! Whew. Would camp here again. Golf course right next door. $45 per round with cart!
+
+
+-----
+
+
+**2022-11-19 Sat 10:05 AM  steve wrote:**
+
+
+San Francisco North / Petaluma KOA, 38.273818373321134, -122.67964379354987
+
+Gas stop, Blue Beacon stop, late start leaving due to low batteries, threw us into a nightmare scene of driving nearly 80 miles on tight two lane highway with no shoulder and full oncoming traffic with bright lights making night drive extremely difficult. Never again! Glad we made it here safely. Assigned camp site was impossible to turn into due to construction. Finally got assigned another site. None of the available sites were level as per reviews. After leveling in the dark, discovered both tires are off the ground.
+
+Bergen and Wilder came with us to our site after we met them and Ryan at Wilder's pumpkin pie social at her school. We checked out some of the kid activies and had nice meal with them, then bed. Great night. Today they are all ours with one more night together before we move rig to Sonoma campground.
+
+
+-----
+
+
