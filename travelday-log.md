@@ -291,3 +291,11 @@ Had chile last night with Siri,Ryan fam. Came home to front jacks needing releve
 -----
 
 
+**2022-11-21 Mon 12:37 PM  steve wrote:**
+
+
+Woke up to loud noise. Chris, trying to start his Florida truck that didn't have glow plugs hooked up. Might have burned out his starter. He's working on it now, laying under truck on rough gravel. Talked to Bob, behind us. All the guys here are either working on or trying to get hired on the line crew. Bob recommended where I might look to find addition for our sewer hose. Seem to be pretty good guys.
+
+-----
+
+
