@@ -279,3 +279,15 @@ Bergen and Wilder came with us to our site after we met them and Ryan at Wilder'
 -----
 
 
+**2022-11-21 Mon 10:04 AM  steve wrote:**
+
+
+Sonoma County Fairgrounds RV Park, Aston Avenue, Santa Rosa, CA. 38.42579040260051, -122.69825200148122
+
+Left Petaluma KOA yesterday and pulled in here. Assigned site had changed and wasn't acceptable. We ended up changing 3 times (2 on paper) until we found one that would fit. Need to buy another long sewer hose to make it work.
+
+Had chile last night with Siri,Ryan fam. Came home to front jacks needing releveling. This has started to happen. They seem to be lowering for some reason?
+
+-----
+
+
