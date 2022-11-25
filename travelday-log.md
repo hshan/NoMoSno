@@ -299,3 +299,23 @@ Woke up to loud noise. Chris, trying to start his Florida truck that didn't have
 -----
 
 
+**2022-11-25 Fri  9:11 AM  steve wrote:**
+
+
+Thanksgiving yesterday @ Ryan and Siri's. Ry did all of the cooking except for Karen's Sweet potato/lentil curry, and lefsa. Aaron, Taylor,Runa and Wes were there as well. Kids had a blast playing with each other.
+
+Siri has spent the last few days working or moving. Last night Wilder and Bergen spent the night with her.
+
+Rode my bike up Taylor mountain two days ago. Great ride. Karen ran with Taz.
+
+-----
+
+
+**2022-11-25 Fri  9:36 AM  steve wrote:**
+
+
+Also, talked with Bobbie, the older traveling nurse next to us, who's rig is parked too close and subsequently she parks her car inches from our rig. Told her it was her rig that was the "offender". She asked if I'd be willing to help her move it next week. She didn't want to put in her slides. She is in an older class c.
+
+-----
+
+
