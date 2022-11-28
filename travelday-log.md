@@ -319,3 +319,15 @@ Also, talked with Bobbie, the older traveling nurse next to us, who's rig is par
 -----
 
 
+**2022-11-28 Mon  9:28 AM  steve wrote:**
+
+
+Friday.. Nina and Mark showed up while we were walking down to local park. Later we went to "the block" and hung out with everyone and Suzan and Michael join us on their way to Shelter Cove! Great evening with lots of laughs!
+
+Saturday...  was Karen and Wilder's birthday. 3:00pm party for Wilder out at their CSA. Karen and I spent the late morning taking care of some "business".. laundry, groceries, etc. Good turnout of their friends at the party.
+
+Sunday... Taylor, Aaron and fam drove to Santa Rosa (our campsite) in prep to meet the Fritches at Howarth Park for kids. Aaron and I were able to do a bike ride up Taylor Mountain (numerous times), while Karen and Taylor and childs did a "walk".
+
+-----
+
+
