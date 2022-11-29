@@ -331,3 +331,11 @@ Sunday... Taylor, Aaron and fam drove to Santa Rosa (our campsite) in prep to me
 -----
 
 
+**2022-11-29 Tue  8:39 AM  steve wrote:**
+
+
+Hooked up with "Kids" families @ Siri's rented house to see it. All of us walked downtown to Sols for Portorican food. Good food, nice evening. Ryan had brought bikes and scooters, but day had gotten away from us.
+
+-----
+
+
