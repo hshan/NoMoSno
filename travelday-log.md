@@ -339,3 +339,19 @@ Hooked up with "Kids" families @ Siri's rented house to see it. All of us walked
 -----
 
 
+**2022-11-30 Wed 12:15 PM  steve wrote:**
+
+
+Met at Siri's shop before ATFam left for San Fran. Karen and I went for walk at Helen Putnam for a few hours, then Met Siri at her house after she picked up W and B. Ryan brought over chairs that Siri had bought and delivered to wrong place. We went home and ate Halibut given to us by Steve Otis.
+
+-----
+
+
+**2022-11-30 Wed 12:20 PM  steve wrote:**
+
+
+Siting at Henry Curtis Ford in Petaluma waiting for oil change. Was quoted by ? yesterday for oil change, cabin filter, air filter to be $350. Now at dealership same gal had me sign estimate for same for $415. Been here for 2 hours. She also said that they were putting in synthetic "blend" not full synthetic oil? "Same as they did when they fixed the oil leak (Zumbrota)". Hope that is coorect?!
+
+-----
+
+
