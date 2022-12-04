@@ -355,3 +355,15 @@ Siting at Henry Curtis Ford in Petaluma waiting for oil change. Was quoted by ? 
 -----
 
 
+**2022-12-03 Sat  6:07 PM  steve wrote:**
+
+
+Thursday ... Steve haircut with Kat! Bowling with Wilder and Bergen, then Mi Pueblo with Siri and Ry and fam
+
+Friday ... Rotate tires @ America's Tires (Discount Tire). Movie with W & B ()(Strange World) F*ck Disney), then Sweet potato lentil curry in Instant pot for dinner.
+
+Saturday ... Morning duties.. got generator to run on low SOC. Ryan and Siri's house to stay/play with the kids. Painting, puppet shows. Ryan gets xmas trees and takes dogs for hike. Back to trailer for chile and hockey game and this post.
+
+-----
+
+
