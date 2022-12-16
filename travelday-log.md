@@ -367,3 +367,29 @@ Saturday ... Morning duties.. got generator to run on low SOC. Ryan and Siri's h
 -----
 
 
+**2022-12-16 Fri  9:18 AM  steve wrote:**
+
+
+Lost days!
+
+Left Santa Rosa on the 6th for Santa Nella rv park. Stayed there 3 nights. Third night necessitated when discovering broken leaf spring as we were leaving for Lake Buena Vista Campground in Bakersfield. 
+
+CoachNet couldn't get anyone out until next morning. Dave came from San Juan Batista (one hour away) , to replace leaf spring. Charged $300.00 cash!
+
+At Santa Rosa, we cooked a neutral Ac 1 out on Multiplus, while hooked up to 30 --> 50 --> EMS --> 30 cord --> power in.
+
+Bought new Multiplus II from Continous Resources and had it shipped to Lake Buena Vista.
+
+Boosters and flu shots @ Costco on the 12th.
+
+Karen reacted strongly on Tuesday and was over it after sweaty night. I didn't react until Wednesday and am still punky today?!
+
+Two hikes to Wind Wolves Reserve which were fantastic. Bike ride into Bakersfield.
+
+Received Multiplus on Wednesday, installed on Thursday. Still getting low battery warnings!?
+
+Onward ho!
+
+-----
+
+
