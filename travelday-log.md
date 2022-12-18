@@ -393,3 +393,11 @@ Onward ho!
 -----
 
 
+**2022-12-17 Sat  5:04 PM  steve wrote:**
+
+
+Arrived at Valencia yesterday. Full hookups. Did power yesterday upon arrival. This am tested positive for Covid!!!! Karen so far negative. Had to cancel trombome festival and visit with Suz, Michael, Heidi, and Jim. Fucking bummer!
+
+-----
+
+
