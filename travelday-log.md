@@ -401,3 +401,43 @@ Arrived at Valencia yesterday. Full hookups. Did power yesterday upon arrival. T
 -----
 
 
+**2022-12-20 Tue 11:00 AM  steve wrote:**
+
+
+Arrived at Lake Tamarisk Desert Resort yesterday after a 3.5 hr drive through wonderful California 4 lane traffic. Weird oasis in the middle of the desert. Small community of retired folks in a clean and not overly opulent environment. Everyone seems friendly.
+
+Karen tested positive for Covid on Sunday after getting new tests from Costco. I tested positive still on Monday.
+
+-----
+
+
+**2022-12-29 Thu 10:54 AM  steve wrote:**
+
+
+We stayed at Lake Tamerisk from the 19 to the 26th. On the 26th we drove south and out of California, across the Colorado river into Az. We stayed for 2 nights at Arizona Oasis Rv Resort.
+
+Lake Tamerisk turned out to be a really nice surprise. Lots of friendly 55+ people, many from British Columbia. Really unique setup for them. Some "bought" lots for ~$20k, with $160/month fees and zero taxes! Super cheap. We played golf one day. Would definately do it again!
+
+Arizona Oasis Rv Resort was so so. We were parked in a pull through next to a couple long term shitty campers. There were plenty of large up scale rigs there. Nice facilities. Swimming pool and hot tub that we didn't use. Karen did laundry in a nice facility.
+
+Arrived yesterday at Quartzsite Dome Rock campsite, 33°38'34.3"N 114°18'33.3"W. Now we are "boondocking" for first time this trip. Got multiplus hooked up and settings from Battleborn, and switched off ups on multiplus to finally get generator operating correctly again. Hopefully we've finally got it all running correctly.
+
+Still haven't gotten satisfaction from Continuous Resources concerning sending wounded multiplus back.
+
+Was talking with a Kendra
+
+KENDRA WOOD
+Warehouse/Logistics Coordinator
+
+475 SOUTH 400 EAST  l  HUNTINGTON, UT  l  84528
+(855) 385-6419  l  (435) 227-3301
+Receiving Hours: 8am to 4pm MST
+ 
+sales@continuousresources.com
+www.continuousresources.com
+
+Now she seems to have quit communicating for the last 2 days. We'll see what comes of it.
+
+-----
+
+
