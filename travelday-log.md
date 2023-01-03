@@ -441,3 +441,17 @@ Now she seems to have quit communicating for the last 2 days. We'll see what com
 -----
 
 
+**2023-01-03 Tue  9:49 AM  steve wrote:**
+
+
+We left Dome Rock @ Quartzsite yesterday the 2nd and drove 3.5 hours nw to Dead Horse Ranch State Park in Az. Upper campground sit 104. 50A with water, no sewer. Lows around 32 every night with highs only getting into the 50's for the next week.
+
+Left our little campsite in Quartzsite with good feelings. Great area for biking.. trails went forever! Most people kept to themselves. We were lucky that we had 2 newer class A's park in our proximity. There were questionable campers/rigs out there when we tooled around. Saw 4 abandoned, ransacked rigs. A newer neighbor took it upon him/herself to dj some reggae full blast during our packout day.
+
+Mostly stayed @ camsite while we were there. Went into Quartsite one day, walked around some venders, grocery shopped, and had a 20" pizza, which was very good.
+
+DHSP looks nice. Not very busy up here. Overlooks Cottonwood. Hoping for some nicer weather!
+
+-----
+
+
