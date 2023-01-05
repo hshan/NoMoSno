@@ -455,3 +455,15 @@ DHSP looks nice. Not very busy up here. Overlooks Cottonwood. Hoping for some ni
 -----
 
 
+**2023-01-05 Thu 10:41 AM  steve wrote:**
+
+
+Yesterday biked for hours on the trails around here scouting for ones we could take together. Although these trails are classified as moderate in difficulty, there are some very challenging parts on all of the trails I rode yesterday.
+
+Karen and Taz walked nearly 4 hours over 8 miles. We had dropped pins and I met up with her once. I rode some of the way towards Sedona checking out a 4x4 road we might take.
+
+Then, riding back around to meet up with Karen, I did a slow motion fall up a steep incline after mis steering into a rock, falling backwards and injuring my left shoulder. Hoping to hell I didn't tear my Rotator Cuff!
+
+-----
+
+
