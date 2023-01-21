@@ -467,3 +467,23 @@ Then, riding back around to meet up with Karen, I did a slow motion fall up a st
 -----
 
 
+**2023-01-21 Sat 11:09 AM  steve wrote:**
+
+
+"We're doing it" I guess. Time flying by.
+
+Dead Horse State Park was a win. Really liked it. Great unlimited hiking, mtb biking trails. Supposedly "moderate" difficulty mountain bike wise. Actually proved to be above my ability. After biking hours on great single track trails (difficult), I stalled out going up and slow mo tipped over injuring my left shoulder. Never to ride on the trails again. We had some great hikes though.
+
+Drove up to Flagstaff twice to pic up some packages we had sent to Heidi. We took them out to eat first time up there to a Mexican place. Second time drove up to pick up some hydration backpacks that were shipped there and did a quic turnaround back to DHSP. Talked with Jim for a few minutes.. heidi was at work. Then they got pounded with snow. We never got togeter to do the clear creek plunge that Heidi and Jim talked about.
+
+On the 16th, we moved to Distant Drums resort for 2 nights. We had made it on 14 days with our tanks (dumped when we left at DHSP), though we were "burping"(full). Now we know. Found some hiking up a wash across the road. We used the hot tub one night and chatted with one guy (sedona realstate tycoon), and a covid denying couple who were ok. Met Luigi, one of the camp hosts who had a Vizsla. Everyone there said come back!
+
+Left for Salome KOA on the 18th. Were going to stay there for a week and drive to Quartzsite Rv show from there. Mostly a bunch of 4-wheel enthusiasts camping there. Friendly. Trails were all flat. Bordering some dive trailer homes. Lots of glass on trail I "watered" Taz on in the morning. Karen ran there and had better feel about the place than I . Nice folks though. Met Mark and Kathy who left early for Quartzsite to meet friends, when we got back from checking out Quartzsite Long term camping areas ourselves. We decided to cut it short at KOA and commit to Quartzsite for the show. KOA gave Karen full refund, no hassle.
+
+Moved to Quartzite [link](https://maps.app.goo.gl/uUf5Aqp9sXCPe3as7) on the 20th. Left early, coffee in the truck, and found a site. So far we're liking the space. Ran gen for hour this am. Batteries were down to 58%. I rode my bike for first time since the fall. Felt good. Should will be ok with normal riding. Will check out show today.
+
+It is warmer were we are now and we moved just in time. Temps were in the 17's north of us
+
+-----
+
+
