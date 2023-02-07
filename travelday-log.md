@@ -487,3 +487,28 @@ It is warmer were we are now and we moved just in time. Temps were in the 17's n
 -----
 
 
+**2023-02-06 Mon  6:33 PM  steve wrote:**
+
+
+My recording only getting worse! Maybe it means we are having too much fun?!
+
+Quartzsite was non-{descript,sensational}, but pleasant. We had our own space, beautiful views, lots of people doing their thing but seemingly respecting others too. The show was the show, just what you'd expect. Had some good conversations with a couple of venders. Bought: "wash and wax pole and pads", garlic graeter plates (some for gifts), and ice cream (two times). We went to listen to Continuous Resources presentation, who had just replaced our Victron Multiplus II !!. Went on nice mtx bike ride to foothills in our North Laposa campground.. quite a nice long ride with possibilities in the foothills. Less and less campers as we went.
+
+Moved to Leaf Verde Rv park on the 25th. Time for shopping, laundry,and getting some mail/merch sent to us. I upgraded the size of ground cables on our system. Very crowded park. Met some Minnesotans. Randy Knudson and wife Barb right next to us with their cute dog Oscar. Karen had commented that for once there were no political flags flying in the park. Some parks restrict that. Last day their Randy asked for some help installing his flagpole on his ladder. Then he put up the American flag and his trump (small t) flag below it. We were glad to leave the next morning.
+
+But we couldn't believe how happy we were going to be!
+
+Feb 1 we pulled into Lost Dutchman State Park. Site 122 in the Rustic Loop. Liked the site, right up against Superstition mountain. Absolutely stunning. We did two great hikes, lots of climbing, beautiful trails and views. One trail for mtb biking.. ~ 4 miles and went around the campsites. Not great for mountain biking.
+
+Met Paul and Roberta on Wednesday at Red White and Brew for a few and dinner. Thursday we met to visit the tourist trap "Ghost town" nearby. Then decided to leave and visit Tortilla flats (sp?).. small town nestled in valley by a reservoir. A couple beers, chips and salsa, and nice talks. Drove back and were going to meet at our site for dinner/fire. No space for them to park and they decided to just go home.
+
+Next day be begged out of Friday evening dinner and went on beautiful long hike and prepped for leaving next morning.
+
+Feb 4 Picacho Peak State Park. Site C24. Good site. Near Overflow camping sites (6), which look nice. No power and says "No Generators" Would work for us. No mtb trails! But found access to rough 4x trail that circles Picacho. Karen and I rode it for a few miles. Yesterday we did the Sunset Vista trail to the peak. Karen graciously stayed behind with Taz and let me summit. We had some fun talks with folks on the trail. Liking the State Park type of campers.
+
+
+
+
+-----
+
+
