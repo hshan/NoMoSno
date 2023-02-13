@@ -512,3 +512,17 @@ Feb 4 Picacho Peak State Park. Site C24. Good site. Near Overflow camping sites 
 -----
 
 
+**2023-02-13 Mon 11:17 AM  steve wrote:**
+
+
+ Arrived W Justin's Diamond J RV Park on the 10th. We were to boondock for 3 days before site A5 opened up for us today. Christine (Vietnamese) is now charging us $16/night to continue boondocking where we are, and $20 to dump and fill with water at an opening site B29 on Saturday the 18th. We were going to be paying 42/night.
+
+ Nothing special about this park, it is in a little dis-repair, supposedly up for sale. Lots of nice rigs here doing the winter thing.
+
+ Only asset for us is the direct access to great easy mtb bike trails which run into Saguaro National Park (East). We rode yesterday and it was great. Looking forward to a few more rides and hikes.
+
+ New cables arrived here the other day, will install soon while here. Was able to tighten failing gutter/awning along roof that was pulling apart. Drilled and installed some new screws and tightened the rest, and caulked roof/gutter junction again where it had pulled apart. Hope it holds up. Some rain today and colder. High in the 50's today.
+
+-----
+
+
