@@ -526,3 +526,21 @@ Feb 4 Picacho Peak State Park. Site C24. Good site. Near Overflow camping sites 
 -----
 
 
+**2023-02-19 Sun 11:01 AM  steve wrote:**
+
+
+Loved the trails behind Justin's! Rode up to Gilberts State campground, which Karen had wanted to get into and rode through the park. Waiting list to get into. Might reserve for next year. Trails!
+
+Was installing new cables for mppt and saw a new camper comming in. Wondering if they were coming in right next to us.. peeked out of the front bay I was working in, and thought I saw someone familiar as this gal was backing up, looking out her window into her side mirror.
+
+It was Cris from [Irene Iron Travels](https://www.youtube.com/channel/UCSh2BRhXXMveamBDeOhubfQ). Got to meet her, Aaron and Louie. Talked with them twice. The kept very low profile while we were there. Nice people.
+
+Left Justin's Diamond on the 18th and moved to SKP Saguaro Coop, Bensen, Az.
+
+Large coop owned by Escapees. We are "boondocking" on large asphalt island between other leased rv sites for $6/day. Supposedly "have" to move once a site with provisions open up. Think would rather stay put.
+
+Rode up by the water tower yesterday and then up a hiking path that would around on a narrow ridge. Was spooky and fun. Lots of weird eroded ridges/hills/ and washes in this area. We'll be hiking up some today. Weather changed from sunny yesterday to cloudy and colder next few days!.
+
+-----
+
+
