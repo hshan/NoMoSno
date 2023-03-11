@@ -1,4 +1,4 @@
-**2020-09-17 Thursday  5:55 PM**
+### 2020-09-17 Thursday  5:55 PM
 
 Ashland RV Campground
 
@@ -7,7 +7,7 @@ Very new well maintained park with level concrete pad sites, very spacious. So n
 -----
 
 
-**2020-09-18 Fri  5:55 PM**
+### 2020-09-18 Fri  5:55 PM
 
 North Sterling State Park
 
@@ -16,7 +16,7 @@ Very rustic gravel sites that were basically just a turnout of the campground lo
 -----
 
 
-**2020-09-19 Sat  5:55 PM**
+### 2020-09-19 Sat  5:55 PM
 
 Saddleback RV Park at Battlement Mesa
 
@@ -25,7 +25,7 @@ Arrive before 6 PM if you want to check in at the office or need to use laundry 
 
 -----
 
-**2020-09-20 Sun  5:55 PM**
+### 2020-09-20 Sun  5:55 PM
 
 Green River KOA
 
@@ -34,7 +34,7 @@ Stayed here to access Moab, good location at the edge of town. They were booked 
 -----
 
 
-**2020-09-21 Mon  5:55 PM**
+### 2020-09-21 Mon  5:55 PM
 
 
 Cave Lake State Park (Elk Flat Campground)
@@ -44,7 +44,7 @@ Arrive early, first come first serve. We arrived around 5 PM and were able to ge
 -----
 
 
-**2020-09-22 Tue  5:55 PM**
+### 2020-09-22 Tue  5:55 PM
 
  Harvest Hosts .. Lattin Farms Fallon, NV.
 
@@ -53,14 +53,14 @@ Arrive early, first come first serve. We arrived around 5 PM and were able to ge
  -----
 
 
-**2020-09-23 Wed  5:55 PM**
+### 2020-09-23 Wed  5:55 PM
 
 Arrived at Sir and Ryan's house around 5:30.. just in time for people heading home. Siri directed traffic and after a dozen false starts (due to traffic), finally committed and got the rig in. Ryan held the wires up to clear top of rig. Siri and Ryan had spent some time trying to clear branches and limbs that might rip roof. Took it slow and made it in with no permanent damage. Some awning covers were jerked off.
 
 -----
 
 
-**2020-09-24 Thur  6:01 PM**
+### 2020-09-24 Thur  6:01 PM
 
 Day two here. Spent most of day with Wilder and Bergen, playing with them and getting to know them again. Interspersed with trying to get rig into shape for the stay!
 
@@ -69,7 +69,7 @@ We cooked chile and Ryan did biscuits for the chile
 -----
 
 
-**2020-09-25 Fri  6:01 PM**
+### 2020-09-25 Fri  6:01 PM
 
 
 We are here at Petaluma, already going on the third day! Today Siri went into her shop to work after noon. Wilder and Bergen went to their community family's home until 5:00pm. Karen and Siri went for a run. I cleared out the garage and rode bike on cyclops for first time. Ryan is cooking dinner tonight. Pad thai I think. Karen just left to pick up Siri and the kids. Ryan and Siri bought a play castle, used for $400.00 that we have to try and pick up sometime and assemble. 
@@ -77,7 +77,7 @@ We are here at Petaluma, already going on the third day! Today Siri went into he
 -----
 
 
-**2020-09-26 Sat  3:31 PM**
+### 2020-09-26 Sat  3:31 PM
 
 
 Day four in Petaluma. Hot and sunny. Siri went to work at noon. Ry,Kar,Wild,Berg,Taz,Verd, and I went for shorty walk at flood area park a couple miles away. Worked up a sweat just casually walking. Second time lifting weights in the garage. Getting it down. Between biking and weights, should have some assemblance of good workout options.. at the very leasg.
@@ -85,7 +85,7 @@ Day four in Petaluma. Hot and sunny. Siri went to work at noon. Ry,Kar,Wild,Berg
 -----
 
 
-**2020-09-28 Mon  1:43 PM**
+### 2020-09-28 Mon  1:43 PM
 
 
 Day five with the Fritches. This was yesterday (forgot to write). Slowly getting rig things in order. Bought new 120v --> 30amp connector after one yesterday nearly melted?! Able to drain gray water through hose now that amazon delivered hose connection yesterday.
@@ -103,7 +103,7 @@ We tried to go to Dillon Beach yesterday, but it was full. So, we went bach thro
 -----
 
 
-**2020-09-30 Wed  9:10 AM**
+### 2020-09-30 Wed  9:10 AM
 
 
 Day six. Much better air today. Temps cool. Siri home today. Karen and I went to Costco for first time since getting here. James and Ryan picked up the swingset/playhouse. Much smaller then I thought. Will probably be a project next day or two. Wilder watched Chitty Chitty Bang Bang. Very shaky internet connections here. So frustrating. Had fun night with kids. Wilder cuddling, Bergen and Wilder teasing me .. taking away my hat. First Presidential debate was tonight. Not presidential.
@@ -111,7 +111,7 @@ Day six. Much better air today. Temps cool. Siri home today. Karen and I went to
 -----
 
 
-**2020-10-04 Sun  9:40 AM**
+### 2020-10-04 Sun  9:40 AM
 
 
 I missed a few days. Three days ago Ry cooked Thai with nan. Two days ago was our day, but Ry couldn't resist :-)  .. "helped with" Huevos, I did the turkey "sausage" and tortillas. 
@@ -129,7 +129,7 @@ Siri and Ryan's 6th wedding anniversary today. They plan to go out alone for an 
 -----
 
 
-**2022-11-04 Fri 10:28 AM  steve wrote:**
+### 2022-11-04 Fri 10:28 AM  steve wrote:
 
 41.42547333534125, -97.06982522861612
 
@@ -141,7 +141,7 @@ Second and third night spent at Tower campground in Sioux Falls SD. 43.543644995
 -----
 
 
-**2022-11-05 Sat  9:00 AM  steve wrote:**
+### 2022-11-05 Sat  9:00 AM  steve wrote:
 
 41.42547333534125, -97.06982522861612
 
@@ -154,7 +154,7 @@ Met a local named Gene, an older gentleman that stopped to offer advise when we 
 -----
 
 
-**2022-11-05 Sat  6:53 PM  steve wrote:**
+### 2022-11-05 Sat  6:53 PM  steve wrote:
 
 
  Pals Brewing Harvist Host, North Platte, Nebraska
@@ -169,7 +169,7 @@ Met a local named Gene, an older gentleman that stopped to offer advise when we 
 -----
 
 
-**2022-11-07 Mon 10:48 AM  steve wrote:**
+### 2022-11-07 Mon 10:48 AM  steve wrote:
 
 
 Vedauwoo Campground, southeast of Laramie, Wy.
@@ -191,7 +191,7 @@ One more walk before we head to Sweetwater :-)
 -----
 
 
-**2022-11-09 Wed 12:38 PM  karen wrote:**
+### 2022-11-09 Wed 12:38 PM  karen wrote:
 
 
 Rock Spring, Wyoming, got in to Sweetwater Event Center late afternoon.  Expansive fairgrounds with over 1200 RV sites with FHUs @ $30/night, can boondock for $10/night.  Easy access from I-80, entered through the "lifestock" entrance and checked in with Kay, one of the caretakers that live on the property.  She charged us $20 for electric hook up only per our request.  Only about 100 sites to choose from that were winterized.  Sites were basically a U-shaped fence on gravel, no rules for how we parked. Free restroom/showers-bldg with individual units consisting of sink, toilet and shower.  Heated and clean. Nice fenced in dog park.  We made broccoli cheese soup in the instapot and Steve grilled deli turkey sandwiches on Gary.  High winds (altitude 6300).
@@ -199,7 +199,7 @@ Rock Spring, Wyoming, got in to Sweetwater Event Center late afternoon.  Expansi
 -----
 
 
-**2022-11-09 Wed 12:38 PM  karen wrote:**
+### 2022-11-09 Wed 12:38 PM  karen wrote:
 
 
 Salt Lake City, Utah:  KOA campground on North Temple right in near downtown (1.3 miles).  No issues traveling here except for intermittent light rains, though there were winter storm warnings in mountainous areas west of SLC.  The KOA campground is massive, with many permanent sites.  Well laid out and nice paved sites although ours was a little uneven. Pool closed but outdoor hot tub open year round (I quickly lost interest due to the pelting rain).  KOA is adjacent to the Jordan River that runs through SLC with a 50 mile long paved trail in the riverside green space, so took Taz out for a wet walk.  Several huge off-leash areas were perfect for him to socialize.  We made veggie rice bowls in the instapot.  Heavy rains beginning in the evening and continuing through the night so happy to be cozy and warm.
@@ -207,7 +207,7 @@ Salt Lake City, Utah:  KOA campground on North Temple right in near downtown (1.
 -----
 
 
-**2022-11-10 Thu 10:36 AM  steve wrote:**
+### 2022-11-10 Thu 10:36 AM  steve wrote:
 
 
 Salt Lake City KOA
@@ -223,7 +223,7 @@ Yesterday, walking through the complex, I was stopped by a truck with 3 guys in 
 -----
 
 
-**2022-11-14 Mon 10:19 AM  steve wrote:**
+### 2022-11-14 Mon 10:19 AM  steve wrote:
 
 
 Desert Canyon RV Park, Desert Resort Court, St. George, UT
@@ -241,7 +241,7 @@ Near airport and hear training planes buzzing right overhead every morning at 7:
 -----
 
 
-**2022-11-15 Tue 10:15 AM  steve wrote:**
+### 2022-11-15 Tue 10:15 AM  steve wrote:
 
 
 Peggy Sue's 50's Diner, Yermo Road, Yermo, CA., 34.90220690735898, -116.88232351933769
@@ -253,7 +253,7 @@ Ate early dinner in the diner. Ordered two large pizzas and ate one. Good pizza.
 -----
 
 
-**2022-11-19 Sat  9:53 AM  steve wrote:**
+### 2022-11-19 Sat  9:53 AM  steve wrote:
 
 
 Kern River Campground, Lake Ming Road, Bakersfield, CA. 35.43519852479366, -118.87733451825724
@@ -266,7 +266,7 @@ We ran into big trouble. Ran the fridge on electricity because of low propane, e
 -----
 
 
-**2022-11-19 Sat 10:05 AM  steve wrote:**
+### 2022-11-19 Sat 10:05 AM  steve wrote:
 
 
 San Francisco North / Petaluma KOA, 38.273818373321134, -122.67964379354987
@@ -279,7 +279,7 @@ Bergen and Wilder came with us to our site after we met them and Ryan at Wilder'
 -----
 
 
-**2022-11-21 Mon 10:04 AM  steve wrote:**
+### 2022-11-21 Mon 10:04 AM  steve wrote:
 
 
 Sonoma County Fairgrounds RV Park, Aston Avenue, Santa Rosa, CA. 38.42579040260051, -122.69825200148122
@@ -291,7 +291,7 @@ Had chile last night with Siri,Ryan fam. Came home to front jacks needing releve
 -----
 
 
-**2022-11-21 Mon 12:37 PM  steve wrote:**
+### 2022-11-21 Mon 12:37 PM  steve wrote:
 
 
 Woke up to loud noise. Chris, trying to start his Florida truck that didn't have glow plugs hooked up. Might have burned out his starter. He's working on it now, laying under truck on rough gravel. Talked to Bob, behind us. All the guys here are either working on or trying to get hired on the line crew. Bob recommended where I might look to find addition for our sewer hose. Seem to be pretty good guys.
@@ -299,7 +299,7 @@ Woke up to loud noise. Chris, trying to start his Florida truck that didn't have
 -----
 
 
-**2022-11-25 Fri  9:11 AM  steve wrote:**
+### 2022-11-25 Fri  9:11 AM  steve wrote:
 
 
 Thanksgiving yesterday @ Ryan and Siri's. Ry did all of the cooking except for Karen's Sweet potato/lentil curry, and lefsa. Aaron, Taylor,Runa and Wes were there as well. Kids had a blast playing with each other.
@@ -311,7 +311,7 @@ Rode my bike up Taylor mountain two days ago. Great ride. Karen ran with Taz.
 -----
 
 
-**2022-11-25 Fri  9:36 AM  steve wrote:**
+### 2022-11-25 Fri  9:36 AM  steve wrote:
 
 
 Also, talked with Bobbie, the older traveling nurse next to us, who's rig is parked too close and subsequently she parks her car inches from our rig. Told her it was her rig that was the "offender". She asked if I'd be willing to help her move it next week. She didn't want to put in her slides. She is in an older class c.
@@ -319,7 +319,7 @@ Also, talked with Bobbie, the older traveling nurse next to us, who's rig is par
 -----
 
 
-**2022-11-28 Mon  9:28 AM  steve wrote:**
+### 2022-11-28 Mon  9:28 AM  steve wrote:
 
 
 Friday.. Nina and Mark showed up while we were walking down to local park. Later we went to "the block" and hung out with everyone and Suzan and Michael join us on their way to Shelter Cove! Great evening with lots of laughs!
@@ -331,7 +331,7 @@ Sunday... Taylor, Aaron and fam drove to Santa Rosa (our campsite) in prep to me
 -----
 
 
-**2022-11-29 Tue  8:39 AM  steve wrote:**
+### 2022-11-29 Tue  8:39 AM  steve wrote:
 
 
 Hooked up with "Kids" families @ Siri's rented house to see it. All of us walked downtown to Sols for Portorican food. Good food, nice evening. Ryan had brought bikes and scooters, but day had gotten away from us.
@@ -339,7 +339,7 @@ Hooked up with "Kids" families @ Siri's rented house to see it. All of us walked
 -----
 
 
-**2022-11-30 Wed 12:15 PM  steve wrote:**
+### 2022-11-30 Wed 12:15 PM  steve wrote:
 
 
 Met at Siri's shop before ATFam left for San Fran. Karen and I went for walk at Helen Putnam for a few hours, then Met Siri at her house after she picked up W and B. Ryan brought over chairs that Siri had bought and delivered to wrong place. We went home and ate Halibut given to us by Steve Otis.
@@ -347,7 +347,7 @@ Met at Siri's shop before ATFam left for San Fran. Karen and I went for walk at 
 -----
 
 
-**2022-11-30 Wed 12:20 PM  steve wrote:**
+### 2022-11-30 Wed 12:20 PM  steve wrote:
 
 
 Siting at Henry Curtis Ford in Petaluma waiting for oil change. Was quoted by ? yesterday for oil change, cabin filter, air filter to be $350. Now at dealership same gal had me sign estimate for same for $415. Been here for 2 hours. She also said that they were putting in synthetic "blend" not full synthetic oil? "Same as they did when they fixed the oil leak (Zumbrota)". Hope that is coorect?!
@@ -355,7 +355,7 @@ Siting at Henry Curtis Ford in Petaluma waiting for oil change. Was quoted by ? 
 -----
 
 
-**2022-12-03 Sat  6:07 PM  steve wrote:**
+### 2022-12-03 Sat  6:07 PM  steve wrote:
 
 
 Thursday ... Steve haircut with Kat! Bowling with Wilder and Bergen, then Mi Pueblo with Siri and Ry and fam
@@ -367,7 +367,7 @@ Saturday ... Morning duties.. got generator to run on low SOC. Ryan and Siri's h
 -----
 
 
-**2022-12-16 Fri  9:18 AM  steve wrote:**
+### 2022-12-16 Fri  9:18 AM  steve wrote:
 
 
 Lost days!
@@ -393,7 +393,7 @@ Onward ho!
 -----
 
 
-**2022-12-17 Sat  5:04 PM  steve wrote:**
+### 2022-12-17 Sat  5:04 PM  steve wrote:
 
 
 Arrived at Valencia yesterday. Full hookups. Did power yesterday upon arrival. This am tested positive for Covid!!!! Karen so far negative. Had to cancel trombome festival and visit with Suz, Michael, Heidi, and Jim. Fucking bummer!
@@ -401,7 +401,7 @@ Arrived at Valencia yesterday. Full hookups. Did power yesterday upon arrival. T
 -----
 
 
-**2022-12-20 Tue 11:00 AM  steve wrote:**
+### 2022-12-20 Tue 11:00 AM  steve wrote:
 
 
 Arrived at Lake Tamarisk Desert Resort yesterday after a 3.5 hr drive through wonderful California 4 lane traffic. Weird oasis in the middle of the desert. Small community of retired folks in a clean and not overly opulent environment. Everyone seems friendly.
@@ -411,7 +411,7 @@ Karen tested positive for Covid on Sunday after getting new tests from Costco. I
 -----
 
 
-**2022-12-29 Thu 10:54 AM  steve wrote:**
+### 2022-12-29 Thu 10:54 AM  steve wrote:
 
 
 We stayed at Lake Tamerisk from the 19 to the 26th. On the 26th we drove south and out of California, across the Colorado river into Az. We stayed for 2 nights at Arizona Oasis Rv Resort.
@@ -441,7 +441,7 @@ Now she seems to have quit communicating for the last 2 days. We'll see what com
 -----
 
 
-**2023-01-03 Tue  9:49 AM  steve wrote:**
+### 2023-01-03 Tue  9:49 AM  steve wrote:
 
 
 We left Dome Rock @ Quartzsite yesterday the 2nd and drove 3.5 hours nw to Dead Horse Ranch State Park in Az. Upper campground sit 104. 50A with water, no sewer. Lows around 32 every night with highs only getting into the 50's for the next week.
@@ -455,7 +455,7 @@ DHSP looks nice. Not very busy up here. Overlooks Cottonwood. Hoping for some ni
 -----
 
 
-**2023-01-05 Thu 10:41 AM  steve wrote:**
+### 2023-01-05 Thu 10:41 AM  steve wrote:
 
 
 Yesterday biked for hours on the trails around here scouting for ones we could take together. Although these trails are classified as moderate in difficulty, there are some very challenging parts on all of the trails I rode yesterday.
@@ -467,7 +467,7 @@ Then, riding back around to meet up with Karen, I did a slow motion fall up a st
 -----
 
 
-**2023-01-21 Sat 11:09 AM  steve wrote:**
+### 2023-01-21 Sat 11:09 AM  steve wrote:
 
 
 "We're doing it" I guess. Time flying by.
@@ -487,7 +487,7 @@ It is warmer were we are now and we moved just in time. Temps were in the 17's n
 -----
 
 
-**2023-02-06 Mon  6:33 PM  steve wrote:**
+### 2023-02-06 Mon  6:33 PM  steve wrote:
 
 
 My recording only getting worse! Maybe it means we are having too much fun?!
@@ -512,7 +512,7 @@ Feb 4 Picacho Peak State Park. Site C24. Good site. Near Overflow camping sites 
 -----
 
 
-**2023-02-13 Mon 11:17 AM  steve wrote:**
+### 2023-02-13 Mon 11:17 AM  steve wrote:
 
 
  Arrived W Justin's Diamond J RV Park on the 10th. We were to boondock for 3 days before site A5 opened up for us today. Christine (Vietnamese) is now charging us $16/night to continue boondocking where we are, and $20 to dump and fill with water at an opening site B29 on Saturday the 18th. We were going to be paying 42/night.
@@ -526,7 +526,7 @@ Feb 4 Picacho Peak State Park. Site C24. Good site. Near Overflow camping sites 
 -----
 
 
-**2023-02-19 Sun 11:01 AM  steve wrote:**
+### 2023-02-19 Sun 11:01 AM  steve wrote:
 
 
 Loved the trails behind Justin's! Rode up to Gilberts State campground, which Karen had wanted to get into and rode through the park. Waiting list to get into. Might reserve for next year. Trails!
@@ -540,6 +540,33 @@ Left Justin's Diamond on the 18th and moved to SKP Saguaro Coop, Bensen, Az.
 Large coop owned by Escapees. We are "boondocking" on large asphalt island between other leased rv sites for $6/day. Supposedly "have" to move once a site with provisions open up. Think would rather stay put.
 
 Rode up by the water tower yesterday and then up a hiking path that would around on a narrow ridge. Was spooky and fun. Lots of weird eroded ridges/hills/ and washes in this area. We'll be hiking up some today. Weather changed from sunny yesterday to cloudy and colder next few days!.
+
+-----
+
+
+### 2023-03-11 Sat 12:41 PM  steve wrote:
+
+
+We left Saquaro for Leasburg Dam State Park on the 25th.
+
+I did ride the Water Tower trail a few times and finally did a long loop. 
+Karen checked in to getting on the waiting list $500.
+
+Rhonda and (Chuck?) from Minnesota welcomed us, both worked there. The overall message was "volunteer" if you were lucky enough to get in. Had a great "french toast" breakfast for $10/per made by 5th grade teacher Darcy. She was wonderful.
+
+Leasburge Dam State Park.
+
+We were here for 12 days. Hooked up to 50A electric. Filled up with water once. Dumped when we left.
+
+Found great mtb trails out in the desert. Had to ride ~ mile over interstate overpass to get to trail head.
+
+Met Pete and Dianne from Illinois. They were half timing in a super small trailer (6'x8'), that one couldn't even stand up in. Met them for dinner @BlueMoon one night, bike rode (flats) once, and went into Las Cruses' Farmers Market on a Saturday with them. 
+
+Did a beautiful hikes in Organ Mountains, and Prehistoric Trackways National Monument, and went into Hatch to buy some chilies.
+
+Arrived at Elephant Butte State Park on the 9th of March. Hooked up to 30A service, and has water hookup.
+
+Walked down to lake. Rode West Lakeshore trail yesterday with Taz and trailer. Washouts are tough, trailer low clearance. Good ride and workout. Windy yesterday, Windier today. Montana trailers next to us are from Texas. They partied late into the night last night and are back into it now, right outside our door. Made contact with them with a bad "do you have a license?" "To have such a good time?" They invited us over. I said thanks, maybe later. The guy offering some Jack said "better hurry cuz later we might be abbreviated". We'll see.
 
 -----
 
