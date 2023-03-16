@@ -571,3 +571,22 @@ Walked down to lake. Rode West Lakeshore trail yesterday with Taz and trailer. W
 -----
 
 
+### 2023-03-15 Wed  6:02 PM  steve wrote:
+
+
+Been @ Elephant Butte State Park, Lions Beach, C, #84, for 5 days. We are on the end of a circle loop w/ 2 inner roads. Ours is pointing North and only desert and the lake between us and our nose. Nice hike down to the beach with Taz in the morning for duties. Beach is ~ .5 mile downhill.
+
+So far, biked the West Lakeside trail a few times, biked to the dam, biked through Elephant's Bute (town).
+
+Did "Healing Waters walk in Truth or Consequences" and went the namesakes brewing company after for a nice sit outside for a couple.
+
+Camp host when we got here was young couple in a Skoolie. She was the person at the park entrance that processed our entry. They kept to themselves, only acknowledging me/us, when I said hi, when we almost had eye contact. 
+
+Next host's name is Patricia. I walked out to talk with her after her being here 2 days with no attempt at eye contact/contact. I had to say "Excuse me Host"! twice to get her to turn towards me. She's nice, from Montanna, ~50some, and by her lonesome. Told her to come to us if anything needed. She was appreciative.
+
+Today, went for first of two visits to RiverBend Hot Springs @ 1:00pm. Very nice, low key, multiple pools right on the Rio Grand. $25/per for public pools. Met two couples in our pool, one staying @ rv park in town, site 130, the other living in 55 plus in Williamsburg. Both couples retired and sold their homes last year.
+
+
+-----
+
+
