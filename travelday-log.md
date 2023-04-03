@@ -600,3 +600,15 @@ Arrived ~ 1:50 to the greeter at the park entrance after waiting in line for 15.
 
 3/28 Karen appointment at West Lake Dermatology clinic 9:40am. They took punch biopsy. Goes back Tuesday for results.
 Went to Aaron and Tay's home. Had wonderful Salmon dinner. Wes has been struggling with ear infection. We piled into A&T's 3 row Kia to go pick up Runa from school! :-) We will be going back and forth from their house to trailer in the next few weeks, trying to figure out a rhythm/schedule.
+### 2023-04-03 Mon 11:11 AM  steve wrote:
+
+
+Yesterday morning got up early to meed Chris and Chris, Aaron's mtb riding friends, for an early morning, headlighted bike ride. Whew! Glad I made it back in one piece! They were excellent riders and my skillset was severely challenged!
+
+Last night Aaron and Taylor invited Peter, Alana, Theo, and Casper for dinner. Was a great evening with them. We came back to the trailer after spending the weekend sleeping over at their house.
+
+Temps to be in the 90's for the next two days. Tomorrow A&T are driving their camper here and staying in site 10, right across from us for a night. Cooler weather for a few days after.. with rain.
+
+-----
+
+
