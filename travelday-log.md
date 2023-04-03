@@ -587,8 +587,6 @@ Next host's name is Patricia. I walked out to talk with her after her being here
 Today, went for first of two visits to RiverBend Hot Springs @ 1:00pm. Very nice, low key, multiple pools right on the Rio Grand. $25/per for public pools. Met two couples in our pool, one staying @ rv park in town, site 130, the other living in 55 plus in Williamsburg. Both couples retired and sold their homes last year.
 
 
------
-
 Another week at Elephant Butte: went to hot springs one more time, I we biked to the dam, many hikes on sand/roads around lake. All in all, good experience. Dumped before we left for -->
 
 03/24 Old 76 Harvest host. This was in the town of Ft. Stockton. Small "beer garden" adjacent to a small, dusty dirt, basic cul de sac, type parking area that accommodated 3 rigs. We were the second to show up around 2:00. Big city park adjacent to the area. Band played that evening (8:00 - 1:00 am). Rick Carr Band. They were amazing. We met: Dan and Jonna from Ohio, Hans and Katrina from Germany. Had a great evening. The third rig that pulled in , right next to the venue was a young couple with 2 young children in a beautiful Class A, pulling a new F150. They didn't make it to the venue and had a terrible night with all of the noise.
@@ -600,6 +598,11 @@ Arrived ~ 1:50 to the greeter at the park entrance after waiting in line for 15.
 
 3/28 Karen appointment at West Lake Dermatology clinic 9:40am. They took punch biopsy. Goes back Tuesday for results.
 Went to Aaron and Tay's home. Had wonderful Salmon dinner. Wes has been struggling with ear infection. We piled into A&T's 3 row Kia to go pick up Runa from school! :-) We will be going back and forth from their house to trailer in the next few weeks, trying to figure out a rhythm/schedule.
+
+
+-----
+
+
 ### 2023-04-03 Mon 11:11 AM  steve wrote:
 
 
@@ -610,5 +613,4 @@ Last night Aaron and Taylor invited Peter, Alana, Theo, and Casper for dinner. W
 Temps to be in the 90's for the next two days. Tomorrow A&T are driving their camper here and staying in site 10, right across from us for a night. Cooler weather for a few days after.. with rain.
 
 -----
-
 
