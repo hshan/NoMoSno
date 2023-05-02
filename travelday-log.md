@@ -614,3 +614,79 @@ Temps to be in the 90's for the next two days. Tomorrow A&T are driving their ca
 
 -----
 
+### 2023-04-03 Mon  2:42 PM  steve wrote:
+
+
+A morning of catching up on some things, broke fast and went out for a walk on the path/s. Came back to our cold (76deg) trailer... soaking wet with sweat. Going to be hard getting used to the temps and humidity again! Might lose some weight though :-)
+
+Showering and heading over to the A&T's .... maybe the swimming pool?
+
+-----
+
+
+### 2023-04-23 Sun 11:08 AM  steve wrote:
+
+
+Two weeks at McKinney Falls State park went fast. Good trails to hike connecting right from the back of our campsite. Aaron, Taylor and family camped one night in their van. We spent the next day playing around the falls on the mega parking lot sized ancient El Camino "highway". Runa had a blast discovering and playing on the rocks and had a terrible time leaving. AT fam came over another day for picnic/hike at the park. 
+
+04/10/23 We had to move to Oak Forest Rv for 3 nights before heading north to Dianosaur Valley State park. Oak Forest was a tiny home community with some rv sites. Full hookup. Nothing special.
+
+-----
+
+
+### 2023-05-02 Tue  9:38 AM  steve wrote:
+
+
+04/13/23, we moved to Dinosaur Valley Rv Park just outside Dinosaur Valley State Park. Runa rode with us and spent the day/night alone with us. Aaron and Taylor came up Friday afternoon with their Van and left on Sunday after spending much of the day with us. We celebrated Runa's 4th birthday there, early. Hot dogs, smores, and a chocolate cake (That Steve crushed), were Runa's request.
+
+This place had everything; swimming pool/s hot tub, adjacent to State Park with tons of top notch hiking/ mtn biking trail, dinosaur tracks, swimming hole.
+
+Good Sam's club, 50Amp full hook up.
+
+04/19/23, moved to Abilene State Park.
+
+This was another Texas park that was under maintained. To get into our reserved site, I had to stop, get on the rv roof, and break off big branches to keep from ruining our rig. Finally getting into our spot (only the front of it), we discovered that we had no verizon coverage. And, Starlink would be a no go with the giant canopy overhead.
+
+Not the best of memories at this place. We had to fix: broken leaf spring (another one), cracked wheel on the rig (front passenger side), and flat driver side front tire (large screw). No fun with zero coverage.
+
+We were able to limp along to another site within the park to the "wagon wheel campground", where it looked to open without trees. Of course Starlink pointed into the giant cottonwood right behind us.
+
+CoachNet Roadside Assistance proved to be a POS subscription for repair on the leaf spring. Finally sending me contact with Rocky Mountain Roadside Assistance who told me that we would have to wait 2 weeks to order our "part" that was going to cost $380. Luckily I was able to find a leaf spring and parts at a trailer manufacture/repair company for under $90, and did it myself (knock on wood that we get all the way home).
+
+Met Michael and Pamela, two traveling companions, each with their own rv's. He was from Prague, she was Hawaiian? Lots of stories and drama from him. Also met Charlie, the military dog trainer, storm chaser, IT guy, and ex-highway patrol, who had a tiny mutt dog and a wife we never saw. All that glory packed into his Hideout Trailer pulled by his Tacoma that could pull 13k lbs? He was a character.
+
+
+-----
+
+
+### 2023-05-02 Tue 10:01 AM  steve wrote:
+
+
+04/21/23, moved to Palo Duro Canyon State park and stayed outside of park at Rim Canyon Rv Park.
+
+Rv park had zip lines that we tried to book. Nancy and Ron came to do it but shut down last minute due to wind? Park was in disrepair. Sites way too close. No access to trails, private property signs all around.
+
+Nancy came over and hiked with us a couple times. We had some great hikes. Went out to eat with Ron and Nancy at a Mexican place one night. Of course they had to have karaoke type of player start up and blast us so we couldn't have nice conversation. Great food. Ron bought.
+
+Ron really in tough shape and tough as usual. Took out all of his teeth, fixed uppers and struggling with his lower dentures. His wrist reconstruction failed and was looking at fusing surgery (first of at least 2) in late May. ITB making any type of hiking impossible for him. Nancy is total nurse-maid for him and his Mom, Helen. Ron brought Helen over for a wonderful meal and Nan and Ron's house. She looked great and was very with it. We had a great time with them that night.
+
+-----
+
+
+### 2023-05-02 Tue 10:29 AM  steve wrote:
+
+
+04/27/23, on to Territory Route 66 Rv park. It was supposedly a harvest host with 2 sites. We stayed at a full 50Amp hookup. Met owners trying to move picnic table. Friendly. Really small rv "park" 70 ft off of '66 highway. Went into Oklahoma City to Sprouts store to shop on our rainy day stay.
+
+04/29/23, moved to Prairie Trails Golf Course (Harvest Host). Stayed on old tennis courts. Had issues with our front hydraulics dropping down. Finally hooked back up to truck for night. I think it might have been because front was already highter then the back and I had added some blocks to the front hydraulics.
+
+We played 9 holes for $60 (drinks in cooler too). The course was unplayable.. supposed to pick up balls out of "fairway" and play them out of the rough for the front nine. Still, beautiful afternoon. Fun to be outside together playing. Karen hit some really nice balls!
+
+
+04/30/23, Clinton State Park. Wooded site, 50Amp with water, dump station.
+
+Amazing gruelling mtb  and hiking trails. I biked for 3 hours and had to bail due to exhaustion. Part of it had to due with constant focus vigil. Karen walked/ran for 3 hours as well. Sunny and windy while here. Found small wood tic embedded in my leg.
+
+-----
+
+
