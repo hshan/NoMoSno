@@ -689,4 +689,10 @@ Amazing gruelling mtb  and hiking trails. I biked for 3 hours and had to bail du
 
 -----
 
+### 2023-10-06 Fri  3:19 PM  karen wrote:
+
+
+Cold and very windy at the lake for the last couple of days. Cabin is warm and cozy...feels like a good baking day.  I received a sourdough starter from Kari Thompson Torgehagen when we visited her and husband Bernt at their home on Ottertail Lake September 10th.  Today I finally dug it out of the fridge, fed it and watched it triple in size over 10 hours or so!  I then made banana bread and cinnamon rolls. The cinnamon rolls I'll give to Les Mykelby for his roadtrip home to Colorado in the next day or so.
+
+-----
 
