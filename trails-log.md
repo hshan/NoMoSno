@@ -696,3 +696,47 @@ Cold and very windy at the lake for the last couple of days. Cabin is warm and c
 
 -----
 
+### 2023-10-08 Sun 12:56 PM  steve wrote:
+
+Yesterday, I spent the better part of the day putting on new (again) brakes and repacking bearings on the failed inner seals of brand new hubs that I bought when I did the job a few months ago! $600+ for new brakes. Hoping the new seals actually work! 
+
+Today, I am going to do the other two wheels. 
+
+Yesterday was cold and windy, today just cold (well.. high 40's so not "cold"). No wind!
+
+-----
+
+### 2023-10-13 Fri 10:26 AM  steve wrote:
+
+Yesterday a few things happened at the Lake as we're winding down the season, getting ready to head out on the 21'st of October:
+
+  * Tom Lein installed our new furnace!
+  * We moved our dock inland
+  * Took down the last orignal Martin house (preditor reached in and pulled out young birds last year)
+  
+Previously, we've :
+
+  * Taken down the pop up over the table/chairs @ front entry
+  * reinstalled 3 new brakes on trailer (had to buy new brake assemblies), and repacked all bearings.
+  * Took down one side of couch on happy jack
+  * updated cerbo and redid prefs on multiplus so that generator ran correctly
+  * more that I can't think of.
+
+-----
+
+### 2023-10-22 Sun  9:10 AM  karen wrote:
+
+Left Lake of the Woods around 1 PM yesterday after getting the cabin/outbuildings bundled up for the winter.  Dropped off Subie at her Greenbush storage winter home, then drove down hwy 59 through TRF.  Smooth pretty road, lots of fall foliage, Bumpa's childhood area.  Stayed at the Shooting Star Casino and RV park for the night in Mahnomen, MN.  Full hook ups available, all sites paved, but water off for the season so we didn't use the restrooms or laundry.  No charge to plug in. Ate at the Traditions Buffet in the smoke-free casino/hotel/event center. Near a train track but only heard one train late evening!  Pretty great place for a town of 1240 people.  Would stay again.
+
+-----
+
+### 2023-10-23 Mon  8:39 AM  steve wrote:
+
+We arrived at Lanesboro campground right around dusk. Leveled, hooked up power, and went to the barn to eat. Kitchen closed at 7, so we ordered 2 pizzas and 2 beers (oh and a non alcoholic for Karen). Came back and hooked up city water so we could turn on hot water heater for morning shower.
+
+Getting ready to head to Byron for dental appointments (cleaning).
+
+Thomas notified this morning that he is having health issues. Seeing cardiologist this am. He has a blockage. We are going to try to get together this week some time. 
+
+-----
+
